@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 집에가고싶다......
+너 내 동료가 돼라! 도도도도도도독
 <!--
 **eggzuxi/eggzuxi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
