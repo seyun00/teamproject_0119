@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 집에가고싶다......
+파이팅파이팅오늘은금요일이니까요
 <!--
 **eggzuxi/eggzuxi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
