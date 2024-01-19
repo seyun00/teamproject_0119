@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 집에가고싶다......
+천방지축 강다현 팀장 박주희 홍보부장 최세윤 일개사원 이창훈
 <!--
 **eggzuxi/eggzuxi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
