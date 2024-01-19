@@ -1,7 +1,12 @@
 ### Hi there 👋
 
-집에가고싶다......
-천방지축 강다현 팀장 박주희 홍보부장 최세윤 일개사원 이창훈
+집에가고싶다......  
+
+천방지축 강다현 팀장 박주희 홍보부장 최세윤 일개사원 이창훈  
+
+너 내 동료가 돼라! 도도도도도도독  
+파이팅파이팅오늘은금요일이니까요  
+
 <!--
 **eggzuxi/eggzuxi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
